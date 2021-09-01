@@ -1,1 +1,1 @@
-# DIS-proj
+# DIS Group7
